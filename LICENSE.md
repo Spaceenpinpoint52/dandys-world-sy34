@@ -1,4 +1,4 @@
-#  
+#  Experience dandy's world like never before with dandy's world hidden Script, the #1 Script. Includes anti-ban and silent aim for unbeatable
 
 
 
